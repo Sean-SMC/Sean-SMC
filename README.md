@@ -63,7 +63,7 @@ Building tools for the blockchain on the Solana network
 
 Email: Clewis_Sean@Outlook.com
 
-LinkedIn: linkedin.com/in/sean-clewis](https://www.linkedin.com/in/sean-clewis-b674a0296
+LinkedIn:[View linked in](https://www.linkedin.com/in/sean-clewis-b674a0296)
 
 Thanks for stopping by! 🚀
 
